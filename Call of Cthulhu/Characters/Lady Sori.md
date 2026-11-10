@@ -1,0 +1,1 @@
+Mocks [[Madame Fortune]] when [[The Gang]] had their Fortune vision

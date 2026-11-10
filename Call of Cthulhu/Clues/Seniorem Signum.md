@@ -1,0 +1,1 @@
+[[The Gang]] woke up from fortune telling with this phrase in their minds
