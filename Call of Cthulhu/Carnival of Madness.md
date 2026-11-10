@@ -168,7 +168,7 @@ Doug comes to his senses and spills the beans about Alice.
 It's 10:45, time for the finale.
 The knife tent is abandoned.
 [[The Gang]] goes to the tent.
-Brian and I go to then tent
+Brian and I go to the tent
 The Carnies are not going
 I'm forcibly vomiting and dry heaving
 In the sky, we see miles of incomprehensibly complex Victorian stone buildings.
@@ -176,3 +176,37 @@ As we look to the sky - the stars are beautiful. They're loomingly large, and th
 	Doug notices that there are no constellations, and there are two dark moons rising above the trees. 
 	This isn't Earth's Sky
 	Doug flees into the tent and is grabbed by people in dark robes. He's dragged to a chair in front of the bleachers.
+Brian and I go to the whack-a-mole stand, but I get lost.
+	I get stopped by the knife thrower.
+	We get separated.
+	Brian ends up turning around and is not where he expected.
+	Brian manages to get two mallets.
+It's 10:50.
+We enter the tent.
+There are insectoid humanoid monstrous paper mache creatures hanging from the tent.
+The chair is an antique. Period appropriate for the shit we've been seeing.
+I recognize the runner of the Bear Hunt carnie watching this.
+[[The Gang]] manages to calm Doug down.
+We all agree to stay.
+# The Show Begins
+A Victorian-style Carnie introduces. It's the barker.
+He introduces [[Lady Sori]].
+	I'm enraptured by her gaze (my bout of madness).
+	The light changes hue to a yellow, and a thin mist begins to emanate from her.
+	I begin uncontrollably sobbing.
+	I look upwards. The sky that definitely should not be visible inside is *wild*.
+	The singing mixes with a dissonant buzzing.
+We're under attack.
+	These creatures are covered in frost.
+	They're living versions of the paper mache monsters.
+I start blasting at one stealing the old lady.
+Brian starts blasting at the one stealing Bongo.
+I nuke [[Lady Sori]].
+We fall unconscious and awaken to an empty field with 9 tall stones.
+	[[Alice Lambert]] is wearing a grayish yellow slip and is sobbing.
+		She's holding a carnival clown doll.
+		She thinks [[Lady Sori]] is her mom.
+Kelly reaches into Bongo's pockets and offers us a joint.
+I check my watch. It's 5:30.
+We look at the sky.
+As we leave, we see the flower in the clouds, and Alice and Doug start chanting the nursery rhyme about the King in Yellow.
